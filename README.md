@@ -8,5 +8,3 @@ Workshops are cool
 
 
 
-Animals are cool too!
-
